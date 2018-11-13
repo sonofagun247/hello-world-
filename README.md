@@ -1,2 +1,6 @@
 # hello-world-
-New repository
+
+Hello there 
+
+positve forward thinking, make money, make money,
+make money xD!!
